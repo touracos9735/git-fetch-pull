@@ -1,5 +1,5 @@
 # git-fetch-pull
 Testing what is pull and fetch
 
-Noet that this amount was paid wrongly to a company
-Remember to deduce when issuing payment or purchasing of disaposable boxes and lids.
+I am happy to annouce to you that your precinct has been selected for the Home Improvement Programme (HIP)
+This is good news. Yur precinct was completed more than 30 years ago and neighbourhood has become an endearing home to many of you.
